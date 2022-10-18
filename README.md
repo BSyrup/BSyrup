@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BSyrup
 - 👀 I’m interested in gaming and music
 - 🌱 I’m currently learning how to unlive
-- 💞️ I’m looking to collaborate on development 
 - 📫 How to reach me:
-- Discord: BSyrup#6034
+- Discord: BSyrup#6034 (DM if I friend!)
